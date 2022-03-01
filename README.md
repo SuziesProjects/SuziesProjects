@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SuziesProjects
 - 👀 I’m interested in drawing
 - 🌱 I’m currently learning coding in Scratch!
-- 💞️ I’m looking to collaborate on ...i dont know?
+- 💞️ I love to eat pizza, spaghetti, noodles (the best)!
 - 📫 How to reach me: skype or gmail
 
 <!---
