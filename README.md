@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SuziesProjects
 - 👀 I’m interested in drawing
-- 🌱 I’m currently learning coding in Scratch!
+- 🌱 I’m currently learning coding in Scratch and Python lol
 - 💞️ I love to eat pizza, spaghetti, noodles (the best)!
 - 😄 MY YOUTUBE CHANNEL:https://www.youtube.com/channel/UCcA5RaItFIUCYJskWC-R58w
 - 😄MY SCRATCH CHANNEL: https://scratch.mit.edu/users/SuziesProjects/
